@@ -1,4 +1,4 @@
-praise J R "Bob" Dobbs 
+Amateur 
 
 <!---
 omistaja-omistaja/omistaja-omistaja is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
